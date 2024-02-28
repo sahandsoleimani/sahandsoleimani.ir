@@ -1,2 +1,1 @@
 # sahandsoleimani.ir
-Sahand Soleimani
